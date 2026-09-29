@@ -1,1 +1,1 @@
-# proyecto-colaborativo Pruebas de colaboración - Equipo Beta
+# Pruebas de colaboración - Proyecto del Equipo Alfa
