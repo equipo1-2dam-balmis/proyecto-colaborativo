@@ -1,1 +1,0 @@
-# proyecto-colaborativo Pruebas de colaboración - Equipo Alfa
