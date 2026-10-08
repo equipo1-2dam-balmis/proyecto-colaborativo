@@ -1,2 +1,2 @@
 # MODIFICACIONES 
-* Edicion 1 
+* Me gusta jugar al lol
