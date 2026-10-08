@@ -1,2 +1,6 @@
-Estefanía Fuentes Orts es la mejor
-
+Estefanía Fuentes Orts 
+Hobbies
+ - Ir a la playa
+ - Acampar
+ - Hacer rutas de montaña
+ - Jugar a juegos de mesa
